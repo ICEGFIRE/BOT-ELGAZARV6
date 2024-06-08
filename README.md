@@ -15,4 +15,4 @@
 ---
 ##قناتي علي الواتس👇🏻
 
-<a href="[https://whatsapp.com/channel/0029VaZtTub4dTnT6S8Q0b3P)"><img src="https://i.ibb.co/hsGYWms/116-1161192-podcast-tracking-listen-button-whatsapp-sign-hd-png.png" alt="Watch tutorial on whatsapp" border="0"  width="200"></a> 
+<a href="[https://whatsapp.com/channel/0029VaZtTub4dTnT6S8Q0b3P)"
